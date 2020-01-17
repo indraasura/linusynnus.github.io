@@ -1,1 +1,0 @@
-# linusynnus.github.io
